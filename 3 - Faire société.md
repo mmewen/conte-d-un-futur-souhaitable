@@ -11,13 +11,3 @@ Nous **refusons de mettre au ban de la société des membres de notre famille** 
 On est beaucoup plus **proches de nos voisins**. Forcément, ce sont eux qui sont à côté si vous avez besoin d'aide ! Est-ce que vous savez sur qui compter à moins de 20 minutes à pieds de chez vous ?
 
 L'hiver dernier, quand j'ai eu une panne de chauffage, mes voisins m'ont accueilli chez eux. En fait, vu que mon appartement est petit, quand j'ai du monde à la maison, ils vont aussi dormir dans la chambre d'amis mes voisins. En échange, vu que j'ai un grand potager, je leur donne des conserves que je fais. Ma voisine du dessous, une petite mamie qui s'appelle Éliane, va souvent voir ses enfants, je prends soin de ses chats et de ses plantes. **Elle met à disposition les appareils dont elle se sert trois fois dans l'année** : perceuse, chaudron à confiture, matériel de peinture, scie... Je n'ai aucun matos de bricolage, je sais que je peux compter sur elle, et elle sur moi !
-
-
-
-*À caser*
-
-- flash info du village [NFS I]
-
-*Liens avec Se loger*
-
-(direct)

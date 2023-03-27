@@ -12,12 +12,6 @@ Aux intersections, on trouve des **pôles de mobilité**. Propriété de chaque 
 
 Une fois que les transports publics fonctionnaient correctement, les **voitures thermiques ont été interdites** dans les zones urbaines. 
 
-Ce changement massif n'a pas été une opposition à l'automobile. Notre **besoin de la voiture s'est juste évaporé**. Et avec la **[fin de la publicité automobile](https://www.smh.com.au/national/we-banned-cigarette-ads-now-we-should-ban-car-ads-too-20180312-p4z3y8.html)**, nous avons cessé d'en vouloir. Les gens regardent en arrière et se demandent pourquoi nous étions si obsédés par ça. 
+Ce changement massif n'a pas été une opposition à l'automobile. Notre **besoin de la voiture s'est juste évaporé**. Et avec la [fin de la publicité automobile](https://www.smh.com.au/national/we-banned-cigarette-ads-now-we-should-ban-car-ads-too-20180312-p4z3y8.html), nous avons cessé d'en vouloir. Les gens regardent en arrière et se demandent pourquoi nous étions si obsédés par ça. 
 
 Ceux qui sont accros peuvent encore avoir leur dose de vitesse et d'adrénaline sur circuit.
-
-
-
-*Liens avec Faire société*
-
-??

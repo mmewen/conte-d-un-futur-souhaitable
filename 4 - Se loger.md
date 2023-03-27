@@ -15,5 +15,3 @@ Avec mes voisins, nous avons **arrangé notre immeuble pour l'été** : les nomb
 Mon immeuble est assez vieux et a toujours besoin de chauffage en hiver. On met un pull : **c'est plus simple d'isoler chaque personne qu'un bâtiment entier** !
 
 Le complément de chauffage se fait avec des panneaux solaires thermiques et au bois avec des **poêles** qu'il y a dans les pièces principales. On les appelle poêles de masse rocket : ils consomment peu de bois, chauffent longtemps et ne rejettent pas de fumées.
-
-*Liens avec Travailler*
